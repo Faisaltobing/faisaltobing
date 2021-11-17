@@ -1,2 +1,0 @@
-# faisaltobing
-Im newbe
